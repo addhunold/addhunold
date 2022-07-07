@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @addhunold
-- 👀 I’m interested in ...the tech world and the golf world
-- 🌱 I’m currently learning ...about the tech/coding world
+- 👀 I’m interested in ...the tech world and the golf world...
+- 🌱 I’m currently learning ...about the tech/coding world...
 - 💞️ I’m looking to collaborate on ...learning!!!
 - 📫 How to reach me ...ahunold87@gmail.com
 
